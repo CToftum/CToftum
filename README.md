@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CToftum
-- 👀 The mountain is my place in the worldV
+- 👀 The mountain is my place in the world
 - 🌱 I’m currently studying electronic engineering
 - 💞️ -
 - 📫 How to reach me? ctoftum13@gmail.com
